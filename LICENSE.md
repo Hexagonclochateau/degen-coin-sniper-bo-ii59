@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with AI-powered Bot for meme coin sniper bot | low-cap-gem-detection & MEV-detection, the #1 meme coin sniper bot. Includes low-cap-gem-detection and
 
 
 
